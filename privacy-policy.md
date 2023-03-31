@@ -1,5 +1,5 @@
 Privacy Policy
-BITS Apogee built the Apogee '22 app as a Commercial app. This SERVICE is provided by BITS Apogee and is intended for use as is.
+AR Apogee built the Apogee '22 app as a Commercial app. This SERVICE is provided by BITS Apogee and is intended for use as is.
 
 This page is used to inform visitors regarding our policies with the collection, use, and disclosure of Personal Information if anyone decided to use our Service.
 
